@@ -1,5 +1,5 @@
-Gigga
-1C
+47
+2С
 Zhao
-Gugga
-ZHAO
+Gigi
+DedaP
