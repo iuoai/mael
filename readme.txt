@@ -1,6 +1,4 @@
 47
 2С
-Zhao
 Gigi
-DedaP
-EvenKidsCanPlay
+wer
